@@ -11,7 +11,7 @@ why didn't it?
 
 please..
 
-2018-07-26 
+2018-07-26 navbar
 
 1조 : Drone Picnic
 학건 승호 유진 화용 지원
